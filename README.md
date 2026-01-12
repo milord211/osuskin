@@ -22,3 +22,8 @@
 # [#tlqkf page edit](https://download856.mediafire.com/h3bq456zdkwgtxQLWw4FA2hm3Rxbth4cx8GEIHnWm22ou1lzdMxTltQLymavgqw_I7Z10lZrvHe-m4JUiqnz-Jnq7QIkYAMmzKjsIF-8AFxZxXIBUpV05qDsUDW6Q9AyJTqiSlxyiHFHw5MZTtMMFKvY_GR6hvVRjze_HmnHmbrJxg/5skth003jvj2chm/%23tlqkf+%5B%23tlqkf+page+edit%5D+%28forum%29.osk)
 
 ![](https://github.com/user-attachments/assets/d0dfe254-cdfd-4899-a104-1ef19e99e19b)
+
+
+# [azerinobomba](https://download1478.mediafire.com/chjqa3gmlv4g63ypVJ9tmh7bgVzwEaoK9opcjz0aZIYjWksjhvJs6INkgmljr4XCTe2JvGSYSdt5TkTq83Nj4e09XK86aBC99nsFoJN17LsDn1ChJHEsaMRaLTK9e0TenG79mc3zCQ6WtvHVavYkCro4nytDUPWvKsIEQt9jA5eTHw/hur8f8czcdbhdws/azerinobombardedytowany+%28malisz+%28various+artists%29%29.osk)
+
+![](https://github.com/user-attachments/assets/bb772432-0ae0-4e82-aae7-7c60f79641c9)
