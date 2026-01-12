@@ -40,7 +40,7 @@
 
 
 > [!NOTE]
-> HR
+> # HR
 # [hrskin](https://download1580.mediafire.com/6u9l0demz4mgxFySjJmUwuPtA8Q97UF--Plh_eJHSvYsPVo96sJ3nSr6xvkfuGxoBgRjWe1sC_qhQjqJKmQLCYl4PtkD2xQM9KBv6lDsWuaKat_o2_xNYFoAAW8t6rzY3pG8tQMylvy6zsflIbZU49zQkLSPOPYFqNsnLtGSjgaFUQ/fbedyvhgghqiiiy/-HRSKIN+%28shibenz%29.osk)
 
 ![osu_2026-01-12_21-50-25](https://github.com/user-attachments/assets/0c62546b-f10c-47e1-8da0-a51e9a7d2166)
