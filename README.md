@@ -1,7 +1,5 @@
 # osuskin
-
-
-https://github.com/user-attachments/assets/1ebe6fda-1182-4462-83f5-99beae3badf4
+https://github.com/user-attachments/assets/f344bf3a-3601-4674-b691-50df07a6375a
 
 
 
