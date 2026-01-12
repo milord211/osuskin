@@ -13,3 +13,9 @@
 # [rektygon editnov](https://download1500.mediafire.com/rzl54gvf51zg8nnAcAhaQ2HowBqyo2Hx_DxShp_jQ00Vr_XhXGsCMCgtGwKp6oWnOxVH_0Y4rF1G3clrj4IFGxSXSew8dpQoxZjxEsIn_HmTSO5BZ7c9CiGuYTgvpUPmBzU_Bjs4Y9UGdraR706aOn4c0OQS8iWAMJIYaOk4x_jXxA/srl79mxtg9h5v3f/%21%21%21rektygon+editnov+%5Brektygon%5D+%28certified+tekkito+edit%29+%282%29.osk)
 
 ![](https://github.com/user-attachments/assets/d5c64f0b-3bb3-4946-a315-f94b574f2c47)
+
+
+# [score skin](https://download1529.mediafire.com/1xlj3y6czcmg42-xOzrOoU_5h9U0Zmn1T7K0FXjb6dvU9KckgHjnbeVU8jClmynBpxAjrA-vhBtGxAUr3VAjsIc1QrPZG_Ko55TOFlI3PdYdPrg4IFFvxlS68EuOuLR6LFUGiPAuIda9cvfOWAzhjkS4oJJcP7oIoX12MWcFtE12vQ/x5souyp67mw83t7/%28%5BGarin%5D+%2B+Aristia+%2B+Various%29+%281%29.osk)
+
+![o](https://github.com/user-attachments/assets/d9e61794-17c4-45a3-9aee-5d04bc87a9ef)
+
