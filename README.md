@@ -5,4 +5,6 @@
 ![](https://github.com/user-attachments/assets/e14a9d00-84d0-4d32-bf92-37b049c5b33a)
 
 
-## [wieprz2](https://download1507.mediafire.com/i4waf7of82ngq_PsXnaSPAD7ydSqgtMkxMesk1IhkdTKn0jvJh9kg_ndemL3y2MWmfgD-keHTiAD6CjObk4wUIugsDJLe0trQJAEameEUBSClpDqMfWKuVUgSQlCTE4cRFbK7dySk_co3kRfrrwlR0Lwgawl8NKS_5sOu-m1apYffA/3hxj364t74u5ctq/-iszrnctrnl+%28maxim%29.osk)
+# [wieprz2](https://download1507.mediafire.com/i4waf7of82ngq_PsXnaSPAD7ydSqgtMkxMesk1IhkdTKn0jvJh9kg_ndemL3y2MWmfgD-keHTiAD6CjObk4wUIugsDJLe0trQJAEameEUBSClpDqMfWKuVUgSQlCTE4cRFbK7dySk_co3kRfrrwlR0Lwgawl8NKS_5sOu-m1apYffA/3hxj364t74u5ctq/-iszrnctrnl+%28maxim%29.osk)
+
+![](https://github.com/user-attachments/assets/746a5416-2c91-4a26-8b3d-29396f56116d)
