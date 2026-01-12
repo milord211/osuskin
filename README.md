@@ -1,5 +1,8 @@
 # osuskin
 
+![]https://video.twimg.com/ext_tw_video/2009988509088501760/pu/vid/avc1/756x576/smB-wkQliUaWDh3_.mp4?tag=19
+
+
 > [!NOTE]
 >  ## NM
 
