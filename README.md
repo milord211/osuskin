@@ -1,9 +1,7 @@
 # osuskin
 
 > [!NOTE]
-> ```diff
 > ! ## NM
-> ```
 
 # [wieprz](https://download1501.mediafire.com/cff14znwscmgqrxw2z1l8wxdxjIcXilaJEc-w0yspa7w6HKs6e_lLWdB1BWYVwAcGb2FKukfyPwMwaxlWulC3GcBZosUsVY-1N9eYygNbxCnkMCqFR-crQe2KVND2qljqGMgx6cXKSHXTn25yB38e4wzAnxcBWNmUE4IxdxpABZpJw/pz1x24986hjfpfa/Alegzandr+-+Yugen+Edit+%28%5BGarin%5D%29+%281%29.osk)
 
@@ -38,7 +36,7 @@
 
 ![](https://github.com/user-attachments/assets/13fef16c-1647-4002-acc4-67c938b33c82)
 
-
+# [monko fruitcake](https://download1339.mediafire.com/hxfmpps24rtgzZZaNoYn8pBqZZmSsKWJuY8ra2Jz-wH-cGffXPspQf6lfHtBwQLHX_nZ3SlPTUyt-dn2Xs7wPoytbqjJ_39sScLpUltrOlyWItPAUkFyg7WlapULpjnwLumZ4OYKTaabP9w_bED0UqUBoDV6mpgW16ljBEIbB8wONw/trz19l48usiq9h5/Monko+fruitcake%5D+sentou+low+health+cos+%28Monko2k++Edited+by+rektygon%29.osk)
 ![osu_2026-01-12_21-59-28](https://github.com/user-attachments/assets/f47569aa-fb95-4e8c-b1d1-bfc24f32cddc)
 
 
@@ -49,4 +47,7 @@
 # [hrskin](https://download1580.mediafire.com/6u9l0demz4mgxFySjJmUwuPtA8Q97UF--Plh_eJHSvYsPVo96sJ3nSr6xvkfuGxoBgRjWe1sC_qhQjqJKmQLCYl4PtkD2xQM9KBv6lDsWuaKat_o2_xNYFoAAW8t6rzY3pG8tQMylvy6zsflIbZU49zQkLSPOPYFqNsnLtGSjgaFUQ/fbedyvhgghqiiiy/-HRSKIN+%28shibenz%29.osk)
 
 ![osu_2026-01-12_21-50-25](https://github.com/user-attachments/assets/0c62546b-f10c-47e1-8da0-a51e9a7d2166)
+
+
+
 
