@@ -1,5 +1,8 @@
 # osuskin
 
+> [!NOTE] 
+> NM
+
 # [wieprz](https://download1501.mediafire.com/cff14znwscmgqrxw2z1l8wxdxjIcXilaJEc-w0yspa7w6HKs6e_lLWdB1BWYVwAcGb2FKukfyPwMwaxlWulC3GcBZosUsVY-1N9eYygNbxCnkMCqFR-crQe2KVND2qljqGMgx6cXKSHXTn25yB38e4wzAnxcBWNmUE4IxdxpABZpJw/pz1x24986hjfpfa/Alegzandr+-+Yugen+Edit+%28%5BGarin%5D%29+%281%29.osk)
 
 ![](https://github.com/user-attachments/assets/e14a9d00-84d0-4d32-bf92-37b049c5b33a)
@@ -30,5 +33,15 @@
 
 
 # [maliszvv](https://download938.mediafire.com/nt0yjldcz73gD-_vz0nJMWoBnTHk2tBhy1MAvKl_P-8iIwsGYTWN1pgbTzr73uRc8hK7kNTyRr8aEY-rqDk-sWI1RvvA2OyNIWTdbBV4X7nRo9bkMkB4py0Aois5oy6DmVnM4KhoBS2ICGjLrMSieuQFo5NnHZvWpmF8Qg7YHjcSmw/ggo0ncfl9fhofql/-maliszvv+%28Unknown%29.osk)
+
 ![](https://github.com/user-attachments/assets/13fef16c-1647-4002-acc4-67c938b33c82)
+
+
+
+
+> [!NOTE]
+> HR
+# [hrskin](https://download1580.mediafire.com/6u9l0demz4mgxFySjJmUwuPtA8Q97UF--Plh_eJHSvYsPVo96sJ3nSr6xvkfuGxoBgRjWe1sC_qhQjqJKmQLCYl4PtkD2xQM9KBv6lDsWuaKat_o2_xNYFoAAW8t6rzY3pG8tQMylvy6zsflIbZU49zQkLSPOPYFqNsnLtGSjgaFUQ/fbedyvhgghqiiiy/-HRSKIN+%28shibenz%29.osk)
+
+![osu_2026-01-12_21-50-25](https://github.com/user-attachments/assets/0c62546b-f10c-47e1-8da0-a51e9a7d2166)
 
