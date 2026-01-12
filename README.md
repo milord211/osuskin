@@ -1,7 +1,9 @@
 # osuskin
 
-> [!NOTE] 
-> ## NM
+> [!NOTE]
+> ```diff
+> ! ## NM
+> ```
 
 # [wieprz](https://download1501.mediafire.com/cff14znwscmgqrxw2z1l8wxdxjIcXilaJEc-w0yspa7w6HKs6e_lLWdB1BWYVwAcGb2FKukfyPwMwaxlWulC3GcBZosUsVY-1N9eYygNbxCnkMCqFR-crQe2KVND2qljqGMgx6cXKSHXTn25yB38e4wzAnxcBWNmUE4IxdxpABZpJw/pz1x24986hjfpfa/Alegzandr+-+Yugen+Edit+%28%5BGarin%5D%29+%281%29.osk)
 
@@ -35,6 +37,9 @@
 # [maliszvv](https://download938.mediafire.com/nt0yjldcz73gD-_vz0nJMWoBnTHk2tBhy1MAvKl_P-8iIwsGYTWN1pgbTzr73uRc8hK7kNTyRr8aEY-rqDk-sWI1RvvA2OyNIWTdbBV4X7nRo9bkMkB4py0Aois5oy6DmVnM4KhoBS2ICGjLrMSieuQFo5NnHZvWpmF8Qg7YHjcSmw/ggo0ncfl9fhofql/-maliszvv+%28Unknown%29.osk)
 
 ![](https://github.com/user-attachments/assets/13fef16c-1647-4002-acc4-67c938b33c82)
+
+
+![osu_2026-01-12_21-59-28](https://github.com/user-attachments/assets/f47569aa-fb95-4e8c-b1d1-bfc24f32cddc)
 
 
 
