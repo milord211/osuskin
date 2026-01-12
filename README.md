@@ -1,6 +1,7 @@
 # osuskin
-https://github.com/user-attachments/assets/f344bf3a-3601-4674-b691-50df07a6375a
-
+<div align="center">
+ <video src=https://github.com/user-attachments/assets/f344bf3a-3601-4674-b691-50df07a6375a
+</div>
 
 
 > [!NOTE]
