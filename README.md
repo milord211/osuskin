@@ -7,6 +7,10 @@
 > [!NOTE]
 >  ## NM
 
+# [aristia HIM(a)](https://download1350.mediafire.com/e1ct99o825ngUaEmvlIU4mGK2DpTN8F7OaoCIUOBI0GsuE4J6htMAMWPPHxuXvWgWBKIISi26nuaKt8uEmqo4yP4amPTPRf4Jx7MOuOlclYFZB1ek3A2A-DI8f7I4e6kxIw8kP-U2F-tEQCpIgGGPwv0IGuaMCzcuuwfa_Q6wI9pVQ/crck40o2jqziw0d/aristia+HIM.osk)
+
+![](https://github.com/user-attachments/assets/27e5ab22-44d3-408d-bca4-fe686329f4e2)
+
 
 # [score skin](https://download1529.mediafire.com/1xlj3y6czcmg42-xOzrOoU_5h9U0Zmn1T7K0FXjb6dvU9KckgHjnbeVU8jClmynBpxAjrA-vhBtGxAUr3VAjsIc1QrPZG_Ko55TOFlI3PdYdPrg4IFFvxlS68EuOuLR6LFUGiPAuIda9cvfOWAzhjkS4oJJcP7oIoX12MWcFtE12vQ/x5souyp67mw83t7/%28%5BGarin%5D+%2B+Aristia+%2B+Various%29+%281%29.osk)
 
