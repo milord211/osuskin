@@ -1,4 +1,4 @@
-# osuskin
+# Mostly random mixes that i did during sessions, you can and in fact i recommend you adjust them to your liking!!
 <div align="center">
  <video src=https://github.com/user-attachments/assets/daf76427-47a8-48b7-aa13-d64226f50606/>
 </div>
