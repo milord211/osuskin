@@ -1,7 +1,10 @@
 # osuskin
 <div align="center">
- <video src=https://github.com/user-attachments/assets/f344bf3a-3601-4674-b691-50df07a6375a/>
+ <video src=https://github.com/user-attachments/assets/daf76427-47a8-48b7-aa13-d64226f50606/>
 </div>
+
+
+
 
 
 > [!NOTE]
