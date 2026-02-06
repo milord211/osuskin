@@ -8,9 +8,10 @@
 > [!NOTE]
 >  ## NM
 
-# [aristia mlrd mix final (?)](https://download1335.mediafire.com/ihkys8gau14gag0W-a2IWE5nsVWd60AYV2khslTETEpDOuWNXKeMxlEj0JP6GYfJz7O20AaxBDuNXjkJzHSBG_OZB61tidRtHjQzdbTeBKxboRqgIAI58Y1xITijyCWZzVSSJqJ3jZVB-35ueUSgGuKCmUPkTE1ktvOVrfn7758O8w/qq7mfdvp6szfaue/-%5Baristia+mlrd+mix%5D.osk)
+# [mizuna](https://download942.mediafire.com/zib3e19o79jgr2TI69ltFh6yvHV6J3AO3TR0-YNKbpEDnzwawei4IEGObzXgKmQ6jEmaQ2kS5vHHMixVOLS9vzqntZsMwWL4k4uZBBLKT5WrAvuMTQ37GM1GC0iVqXTtWq42HvyrHGxkXqyogsVPjBzTwWabv8D7Egv3M1WXKkROtQ/e145kyymkwqxp97/%21mizuna+%28mlrd%29.osk)
 
-![](https://github.com/user-attachments/assets/6be2e3fc-d4ab-4cbc-b3e0-0a49a2ede7fc)
+![](https://github.com/user-attachments/assets/1c950ed6-43fe-4da3-b2ab-477d1570da7d)
+
 
 
 # [aristest](https://download1529.mediafire.com/1xlj3y6czcmg42-xOzrOoU_5h9U0Zmn1T7K0FXjb6dvU9KckgHjnbeVU8jClmynBpxAjrA-vhBtGxAUr3VAjsIc1QrPZG_Ko55TOFlI3PdYdPrg4IFFvxlS68EuOuLR6LFUGiPAuIda9cvfOWAzhjkS4oJJcP7oIoX12MWcFtE12vQ/x5souyp67mw83t7/%28%5BGarin%5D+%2B+Aristia+%2B+Various%29+%281%29.osk)
