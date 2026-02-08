@@ -36,6 +36,9 @@
 
 # [#tlqkf page edit](https://download856.mediafire.com/h3bq456zdkwgtxQLWw4FA2hm3Rxbth4cx8GEIHnWm22ou1lzdMxTltQLymavgqw_I7Z10lZrvHe-m4JUiqnz-Jnq7QIkYAMmzKjsIF-8AFxZxXIBUpV05qDsUDW6Q9AyJTqiSlxyiHFHw5MZTtMMFKvY_GR6hvVRjze_HmnHmbrJxg/5skth003jvj2chm/%23tlqkf+%5B%23tlqkf+page+edit%5D+%28forum%29.osk)
 
+
+[alternative reversearrow](https://cdn.discordapp.com/attachments/1469746716067627210/1469749096406581369/reversearrow2x.png?ex=698972c3&is=69882143&hm=21a29601f07fdeff31b49b7f0882c3ab8c579d059fbf301f8183e0296b3cbe69&) if download doesn't work paste into discord.
+
 ![](https://github.com/user-attachments/assets/d0dfe254-cdfd-4899-a104-1ef19e99e19b)
 
 
