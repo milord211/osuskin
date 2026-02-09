@@ -41,6 +41,10 @@
 
 ![](https://github.com/user-attachments/assets/d0dfe254-cdfd-4899-a104-1ef19e99e19b)
 
+# [zadymiarz sadness edit](https://download1339.mediafire.com/1b84ye7v1xwgv27uNhRZr3w_M_HymblTHyxUz7d_vJ7LbBoaoRJ_UfK9EMUqw4fu0j4d2oGr2LbUeYZokgrJirvoRW3cu3PYqReC1msyN87ETgEwuHz90MNPj2BfLaYnWj1QoHnO3NqemsGQL9pqRrK3_Q3ltOKaG40HygvbWSrZvA/o70oxypuwm475q0/FARTWALKER.osk)
+
+![](https://github.com/user-attachments/assets/9d6e1b0a-bc81-4e7a-a28c-505f5a1f514b)
+
 
 # [azerinobomba](https://download1478.mediafire.com/chjqa3gmlv4g63ypVJ9tmh7bgVzwEaoK9opcjz0aZIYjWksjhvJs6INkgmljr4XCTe2JvGSYSdt5TkTq83Nj4e09XK86aBC99nsFoJN17LsDn1ChJHEsaMRaLTK9e0TenG79mc3zCQ6WtvHVavYkCro4nytDUPWvKsIEQt9jA5eTHw/hur8f8czcdbhdws/azerinobombardedytowany+%28malisz+%28various+artists%29%29.osk)
 
@@ -59,6 +63,10 @@
 # [hrskin](https://download1580.mediafire.com/6u9l0demz4mgxFySjJmUwuPtA8Q97UF--Plh_eJHSvYsPVo96sJ3nSr6xvkfuGxoBgRjWe1sC_qhQjqJKmQLCYl4PtkD2xQM9KBv6lDsWuaKat_o2_xNYFoAAW8t6rzY3pG8tQMylvy6zsflIbZU49zQkLSPOPYFqNsnLtGSjgaFUQ/fbedyvhgghqiiiy/-HRSKIN+%28shibenz%29.osk)
 
 ![osu_2026-01-12_21-50-25](https://github.com/user-attachments/assets/0c62546b-f10c-47e1-8da0-a51e9a7d2166)
+
+# [cvl HR](https://download1321.mediafire.com/rywhx1g4gnxgZZFXnqIzpLFy4uknJ3nt2_swaKgIaDgnon_5DOCrNjbvRSBxmAaWIf5P8y5iGUieg8VVdDcIkuZOFi3_u5LPLcT1M7AY-tPzGGbI4AP-UbZFV3uqQCA3xFnCYdCNCyO5ovx52IYJRIL-cUdTGDiZzy4sE2zPcJNQBg/kpmwyz07xygg8vm/spel.osk)
+
+![osu_2026-02-09_17-49-05](https://github.com/user-attachments/assets/b63d533a-a577-4b94-921b-65a2e41a71e8)
 
 
 
